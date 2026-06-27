@@ -1,2 +1,1 @@
-https://nova.o3x6.ir/sub?sub=xodeomid&key=9842b842e684
-https://steve-vpn.guard-tech.ir/feed/omix
+https://h.gozarban.org/connection/Qnh4MjNfc3pjZ2czLDE3ODI1OTMwNjY9FckTcw8Mv
